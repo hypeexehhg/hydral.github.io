@@ -1,1 +1,0 @@
-# computer_and_infomation
